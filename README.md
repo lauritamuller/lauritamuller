@@ -8,6 +8,4 @@ Meu nome é Laura Muller
 
 ### Vocẽ pode entrar em contato comigo 📫
 
-muller.laura@escola.pr.gov.br
-
 @lauraa__muler_
